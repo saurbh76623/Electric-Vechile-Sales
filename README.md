@@ -1,0 +1,1 @@
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fknnindia.co.in%2Fnews%2Fnewsdetails%2Fsectors%2Fautomobile%2Findias-ev-sales-hit-4-market-share-in-may-2025-marking-sharp-growth&psig=AOvVaw3_CsxDdehAOlE8Ige8mLh2&ust=1755349614459000&source=images&cd=vfe&opi=89978449&ved=0CBUQjRxqFwoTCICQn4TxjI8DFQAAAAAdAAAAABAE
